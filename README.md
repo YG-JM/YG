@@ -4,10 +4,9 @@
 
 # 🐾 [阳光5号店-直接点击进入](http://0fk.cc/hfygm)
 
+http://0fk.cc/hfygm
 
-一个基于 .NET 和 Vue3 的猫咪爱好者活动发布与交流平台，参考自 [LetsGo_1](https://github.com/LetsgoNetwork/LetsGo_1)。
 
----
 
 ## 📚 项目导航
 
