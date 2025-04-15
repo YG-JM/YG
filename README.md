@@ -1,6 +1,6 @@
 
 
-# 🐾[阳光-5号店-诚信店铺-点击进入](http://0fk.cc/hfygm)
+# 🐾[阳光-5号店-诚信店铺-点击进入](https://o.wynmyw.com/links/300587EE)
 - http://0fk.cc/hfygm
 - https://o.wynmyw.com/links/300587EE
 - 
