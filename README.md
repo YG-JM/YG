@@ -1,8 +1,8 @@
 
 
-## TODO
+## 阳光接码总台
 
-# 🐾 [阳光接码总台](https://github.com/LetsgoNetwork/LetsGo_1)
+# 🐾 [阳光5号店-直接点击进入](https://github.com/LetsgoNetwork/LetsGo_1)
 
 
 一个基于 .NET 和 Vue3 的猫咪爱好者活动发布与交流平台，参考自 [LetsGo_1](https://github.com/LetsgoNetwork/LetsGo_1)。
