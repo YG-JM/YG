@@ -6,6 +6,7 @@
 - [ ] 上班时间：10:00-23:00
 - [ ] 飞机客服：[@YGJM458](https://t.me/YGJM458)
 - [ ] 土豆： @YG458 土豆下载地址：https://www.potato186.org/
+- [ ] 安卓版 https://gdjg.wtiantian.com/android/pt123-20250405.apk
 - [ ] 土豆教学QQ 3092109137
 - [ ] 频道*群： https://t.me/YGJM911
 
