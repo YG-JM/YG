@@ -1,7 +1,7 @@
 
 
-# 🐾[阳光-5号店-诚信店铺-点击进入](https://o.wynmyw.com/links/300587EE)
-- https://o.wynmyw.com/links/300587EE
+# 🐾[阳光-5号店-诚信店铺-点击进入](https://fi.nzvrwi.com//links/300587EE)
+- https://fi.nzvrwi.com/links/300587EE
 - 
 - [ ] 上班时间：10:00-23:00
 - [ ] 飞机客服：[@YGJM458](https://t.me/YGJM458)
